@@ -27,7 +27,7 @@ I have a globe near by my desk  :blush:   :stuck_out_tongue_winking_eye:
 <br><br>
 
 
-And I have more   :stuck_out_tongue:  A Globe and a House  :laughing:
+And I have more   :stuck_out_tongue:  A Watch Tower and a House  :laughing:
 <br>
 
 
