@@ -12,7 +12,7 @@ This application provides the following facilities<br>
 * Capture the image with AR objects
 
 <br>
-I have a globe near by my seat :blush:   :stuck_out_tongue_winking_eye:
+I have a globe near by my desk  :blush:   :stuck_out_tongue_winking_eye:
 <br><br>
 
 
