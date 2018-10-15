@@ -23,8 +23,4 @@ I have a globe near by my seat :blush:   :stuck_out_tongue_winking_eye:
 And I have more   :stuck_out_tongue:  A Globe, House and and igloo house    :laughing:
 <br>
 
-![20181015120402_screenshot](https://user-images.githubusercontent.com/39777674/46934313-eaddfa80-d074-11e8-8bcd-5902cbd64e82.jpg)
-
-<br><br>
-
 ![20181015120544_screenshot](https://user-images.githubusercontent.com/39777674/46934332-f7625300-d074-11e8-82bf-3975d98bbb72.jpg)
